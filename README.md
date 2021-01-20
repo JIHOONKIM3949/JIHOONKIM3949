@@ -1,5 +1,5 @@
 ### Hi there 👋
-Good Day! I am Jihoon Kim who is interested in Web DevelopMent from South Korea
+Good Day! I am Jihoon Kim who is interested in Web Development from South Korea
 
 If  you want to contact me, please leave me a message!
 
